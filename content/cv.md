@@ -9,7 +9,7 @@
 
 **The Ohio State University**, B.S. in Electrical and Computer Engineering, _2017 - 2020_
 
-- Graduated with Cum Laude Honours
+- Graduated with Cum Laude Honors
 
 ## Experience
 
